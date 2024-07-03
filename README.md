@@ -27,3 +27,4 @@ I am now #aligned ✅
 - Share your tweet link in ```#🧪| testnet``` channel
 
 ![Screenshot 2024-07-02 184455](https://github.com/dxzenith/aligned-testnet/assets/161211651/85b6a931-3d3f-4f27-a814-83a4512a9572)
+Join my channel TELEGRAM https://t.me/airdrop_node
